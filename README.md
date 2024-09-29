@@ -1,1 +1,1 @@
-![Let´s all love Lain](lain.png)
+![Let´s all love Lain](lain.jpg)
